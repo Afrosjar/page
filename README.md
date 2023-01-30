@@ -33,4 +33,4 @@
 
 
 
-![](https://github.com/Afrosjar/page/blob/main/images/IMG_3266.JPG)
+![](https://vzboltay.com/uploads/posts/2018-06/1529163948_barista-2.jpg)
